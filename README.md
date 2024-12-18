@@ -14,6 +14,8 @@ https://www.naukri.com/job-listings-devops-engineer-devops-enabler-co-bengaluru-
 
 https://www.naukri.com/job-listings-devops-engineer-intern-regami-solutions-chennai-0-to-1-years-111124013784?src=cluster&sid=17344909310248381_3&xp=6&px=1&nignbevent_src=jobsearchDeskGNB
 
+https://www.linkedin.com/jobs/view/4094675211
+
 # Cyber security
 
 https://www.naukri.com/job-listings-cyber-security-governance-intern-rt-network-solutions-kolkata-0-to-1-years-171224007493?src=cluster&sid=17344909310248381_3&xp=10&px=1&nignbevent_src=jobsearchDeskGNB
