@@ -1,3 +1,5 @@
+# I was created this file is for appling job with (email) effective communication and fast reply purpouse only dont miss usage it if you miss use it I was not responsible 
+
 # Technical Support HR 
 
 8279384921 or anjalisingh.ebs@gmail.com
