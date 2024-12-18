@@ -37,6 +37,7 @@ https://www.linkedin.com/jobs/view/4100964715/?refId=EA9%2FlXVLTGmKBL1PIDnggQ%3D
 
 https://www.expertia.ai/revalsys-in/job/hiring-looking-for-sql-fresher-66a7383f1613a42e01a44610?utm_source=linkedin-feed&easy_apply=true&date-refresh=12/16/2024#google_vignette
 
+https://www.linkedin.com/jobs/view/4089990393
 
 https://www.tcsion.com/jobs/Tredence-Analytics-Solutions-Pvt-Ltd/Data-Analyst-12175/
 
