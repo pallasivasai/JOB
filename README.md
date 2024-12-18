@@ -38,6 +38,8 @@ https://www.linkedin.com/jobs/view/4100964715/?refId=EA9%2FlXVLTGmKBL1PIDnggQ%3D
 https://www.expertia.ai/revalsys-in/job/hiring-looking-for-sql-fresher-66a7383f1613a42e01a44610?utm_source=linkedin-feed&easy_apply=true&date-refresh=12/16/2024#google_vignette
 
 
+https://www.tcsion.com/jobs/Tredence-Analytics-Solutions-Pvt-Ltd/Data-Analyst-12175/
+
 https://www.linkedin.com/jobs/view/4101977820/?refId=5ca6f31e-e67a-46e5-ac89-3529424e73d9&trackingId=uHRoG%2B6PR5ano7PPFXtA%2FQ%3D%3D&trk=flagship3_job_home_savedjobs   
 
 https://www.linkedin.com/jobs/view/4101940859/?refId=5ca6f31e-e67a-46e5-ac89-3529424e73d9&trackingId=SVuSCEh7Qh6sjYiSOVlsdA%3D%3D&trk=flagship3_job_home_savedjobs   
@@ -97,6 +99,8 @@ https://www.naukri.com/job-listings-unity-game-developer-wildgame-creative-studi
 
 
 # app dev
+
+https://www.tcsion.com/jobs/Uffizio/Junior-Android-Developer-12223/
 
 
 https://www.naukri.com/job-listings-flutter-developer-intern-internship-presear-softwares-bhubaneswar-0-to-1-years-061224502194?src=cluster&sid=17344903490071980_3&xp=10&px=1&nignbevent_src=jobsearchDeskGNB
