@@ -2,7 +2,7 @@
 
 # HR & Technical Recruiter
 
-[1](https://www.linkedin.com/jobs/view/4100055473)
+https://www.linkedin.com/jobs/view/4100055473
 
 https://www.linkedin.com/jobs/view/4075852522
 
